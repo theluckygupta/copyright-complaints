@@ -1,1 +1,1 @@
-# copyright-complaints.me
+Here you can find all copyrighted work
